@@ -21,9 +21,9 @@ Masang janur kuning, bleketepe, dan tuwuhan didepan rumah ceweknya dan didepan t
 - Godhong ilalang -> **hilang**. semua hal yang jelek dalam diri manten hilang.
 - Pari seikat -> **andhap asor**. Semakin berisi semakin menunduk.
 - Godhong lan sekar woh kapas -> **suci** (kapas = putih). suci = membela kebenaran dan menjaga agama
--> Ranting lan godhong ringin -> **mendamaikan dan melindungi**. filosofinya dari tradisi tutup mata lewat beringin di alun-alun
--> pengarong isinipun kembang setaman -> **wangi jiwa**. 
--> janur kuning ingkang dipunsuwir -> **kemakmuran**. warna kuning.
+- Ranting lan godhong ringin -> **mendamaikan dan melindungi**. filosofinya dari tradisi tutup mata lewat beringin di alun-alun
+- pengarong isinipun kembang setaman -> **wangi jiwa**. 
+- janur kuning ingkang dipunsuwir -> **kemakmuran**. warna kuning.
 
 ### Buwangan (Sajen)
 sesaji = sedekah. niat awalnya untuk mengucapkan terimakasih ke sang pencipta.  
